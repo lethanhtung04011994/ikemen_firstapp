@@ -27,3 +27,4 @@ To watch some training videos, visit http://www.youtube.com/user/c9ide
 ２０１２１９４９　チン・キエン
 20121568 グエン．チュン.ドゥック
 20122739 レー・タイン・トゥン
+２０１１２０３５ グェン・ズイ・クアン
